@@ -6,7 +6,7 @@
 -                Wechat ID (recommended for Chinese):FZR17376860413 OR search "17376860413"
 -                Skype(recommended for Japanese):Search"ナシア　マルス"
 -                Snapchat（recommended for Indian）:+8617376860413
--                Whatsapp:+8617376860413
+-                Whatsapp:+8618924582679
 -                Instagram:search"nasirmars"
 -                Telegram:+8617376860413
 -                Phone number:+8617376860413              
