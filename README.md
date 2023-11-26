@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on software engineer
 - 📫 Contact-->  Facebook/Messenger(recommended for International[USA,UK,Pakistan,Canada,SA...]): search "Nasir Mars ShenZhen"
--                Wechat ID (recommended for Chinese):FZR17376860413 OR search "17376860413"
+-                Wechat ID (recommended for Chinese):FZR17376860413 OR search "18924582679"
 -                Skype(recommended for Japanese):Search"ナシア　マルス"
 -                Snapchat（recommended for Indian）:+8617376860413
 -                Whatsapp:+8618924582679
