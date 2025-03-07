@@ -7,9 +7,7 @@
 -                Whatsapp:+8618924582679
 -                Instagram:search"nasirmars"
 -                Telegram:+8617376860413
--                Phone number:+8618924582679              
--                
--                
+-                Phone number:+8618924582679                          
 <!---
 NasirMars/NasirMars is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
